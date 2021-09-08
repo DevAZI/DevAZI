@@ -1,7 +1,7 @@
 Hi I'm interesting about backend developer!
 
 
-These are my skill!
+
 
 
 
